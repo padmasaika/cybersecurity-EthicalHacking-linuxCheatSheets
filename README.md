@@ -1,1 +1,0 @@
-# Linux-cheat-sheet-and-basics-of-cybersecurity-
